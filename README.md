@@ -1,4 +1,4 @@
-                                Hello !
+                                **Hello !**
 
 • Name : Waves / Arithia
 • Pronouns : Any, [Commonly : She/her]
