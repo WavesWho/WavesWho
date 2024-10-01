@@ -11,7 +11,7 @@
 • I don't mind being cuddled/hugged, but I do NOT like being humped if you are a stranger and not a close friend.
   You can interact with me, I don't bite. If you want to chat, please whisper. I'm usually offtab.
 
-• But sometimes I'm asleep! If I don't respond. It's that, but I still read them if I wake up!
+• But sometimes I'm asleep or at school! If I don't respond. It's that, but I still read them if I wake up!
   
 • I'm an autistic awkward person, I usually don't start the conversation.
 
