@@ -10,10 +10,12 @@
 
 • I don't mind being cuddled/hugged, but I do NOT like being humped if you are a stranger and not a close friend.
   You can interact with me, I don't bite. If you want to chat, please whisper. I'm usually offtab.
+
+• But sometimes I'm asleep! If I don't respond. It's that, but I still read them if I wake up!
   
 • I'm an autistic awkward person, I usually don't start the conversation.
 
-• I'am extremely uncomfy with sex jokes directly to me! (Ex: I'm gonna fuck you.) But I'm fine with sex jokes that isn't directed to me ^_^!!
+• __I'am extremely uncomfy with sex jokes directly to me!__ (Ex: I'm gonna fuck you.) But I'm fine with sex jokes that isn't directed to me ^_^!!
   I just have a trauma from it so srry :P
 
 ━━━━━━━━༻❁༺━━━━━━━━
@@ -38,7 +40,7 @@
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-  DNIF / DON'T INTERACT IF :
+  **`DNIF / DON'T INTERACT IF :`**
 
 ━━━━━━━━༻❁༺━━━━━━━━
      
@@ -48,7 +50,7 @@
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-  Interests :
+  **`Interests :`**
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
