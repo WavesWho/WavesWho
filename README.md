@@ -47,7 +47,9 @@
 ━━━━━━━━༻❁༺━━━━━━━━
      
 • Basic DNI criteria (Racism,Homophibia,Incest,Zoophila,etc.)
+
 • TCOAAL cosplayers <-- HUGE DNI
+
 • Dandy's world cosplayers
 
 ━━━━━━━━༻❁༺━━━━━━━━
