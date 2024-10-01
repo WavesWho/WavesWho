@@ -18,6 +18,8 @@
 • __I'am extremely uncomfy with sex jokes directly to me!__ (Ex: I'm gonna fuck you.) But I'm fine with sex jokes that isn't directed to me ^_^!!
   I just have a trauma from it so srry :P
 
+• Taken by a man who's very jealous when I interact with someone else /neg
+
 ━━━━━━━━༻❁༺━━━━━━━━
 
   **`You can find me in :`**
