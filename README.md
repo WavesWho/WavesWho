@@ -18,6 +18,8 @@
 • __I'am extremely uncomfy with sex jokes directly to me!__ (Ex: I'm gonna fuck you.) But I'm fine with sex jokes that isn't directed to me ^_^!!
   I just have a trauma from it so srry :P
 
+• I don't want to join your parties unless you are a known friend. So don't send me your invites to an "fpe party" or "murder drones party", I want none of that.
+
 • Taken by a man who's very jealous when I interact with someone else /neg
 
 ━━━━━━━━༻❁༺━━━━━━━━
