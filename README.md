@@ -91,6 +91,16 @@
 • Left 4 dead 2
 
 ━━━━━━━━༻❁༺━━━━━━━━
+ **`Social Medias`**
+━━━━━━━━༻❁༺━━━━━━━━
+
+• Twitter : @WavesWho4u (art archive)
+            @Arithia_ (Main account)
+            @Arithives (Private)
+            
+• Discord : @Waveswho
+
+━━━━━━━━༻❁༺━━━━━━━━
 
    ![image](https://github.com/user-attachments/assets/baecdf88-35a5-41e4-8e0d-988c37b47a81)
 
