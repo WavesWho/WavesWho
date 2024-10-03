@@ -38,7 +38,7 @@
  
 • Near the murder drones, fpe, and roblox area
 
-• In the library
+• In the library or outside the library, (PM AREA)
 
 • Camp area
 
