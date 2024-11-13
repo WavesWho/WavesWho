@@ -50,8 +50,6 @@
 
 • TCOAAL cosplayers <-- HUGE DNI
 
-• Dandy's world cosplayers
-
 ━━━━━━━━༻❁༺━━━━━━━━
 
   **`Interests :`**
