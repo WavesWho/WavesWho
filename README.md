@@ -50,6 +50,8 @@
 
 • TCOAAL cosplayers <-- HUGE DNI
 
+• Mimukauwa Nice Try supporters (Ew, child diddlers go away)
+
 ━━━━━━━━༻❁༺━━━━━━━━
 
   **`Interests :`**
