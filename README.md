@@ -18,7 +18,7 @@
 
 • I don't want to join your parties unless you are a known friend. So don't send me your invites to an "fpe party" or "murder drones party", I want none of that.
 
-• Taken by a man who's very jealous when I interact with someone else /neg
+• Taken by a man who loves me and I love him too!! Yippee Yippee!! ^_^
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
