@@ -102,8 +102,7 @@
 
 • Twitter : @WavesWho4u (art archive)
             @Arithia_ (Main account)
-            @Arithives (Private)
-            
+
 • Discord : @Waveswho
 
 ━━━━━━━━༻❁༺━━━━━━━━
