@@ -36,7 +36,7 @@
 
  [Safe server]
  
-• Near the murder drones, fpe, and roblox area
+• Near the cafeteria lake
 
 • In the library or outside the library, (PM AREA)
 
