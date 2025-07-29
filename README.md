@@ -20,6 +20,8 @@
 
 • Taken by a man who loves me and I love him too!! Yippee Yippee!! ^_^
 
+• I am 18 years old, so my topics with minors are limited and I will block you if you don't respect my boundaries ^_^
+
 ━━━━━━━━༻❁༺━━━━━━━━
 
   **`You can find me in :`**
@@ -58,13 +60,15 @@
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-• Project Moon
+• Alien Stage (Current!!)
+
+• Forsaken (Current!!)
+
+• Project Moon (Current!!)
 
 • Class of 09
 
 • Studio investigrave (Deadplate,Elevator Hitch,Eloquent Countenance,Etc.)
-
-• Alien Stage
 
 • The mandela catalouge
 
