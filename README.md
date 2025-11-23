@@ -73,6 +73,8 @@
 
 • Project Moon (Current!!)
 
+• Die of Death (Current!!)
+
 • Class of 09
 
 • Studio investigrave (Deadplate,Elevator Hitch,Eloquent Countenance,Etc.)
