@@ -9,22 +9,25 @@
 • Pronouns : Any, [Commonly : She/her]
 
 • I don't mind being cuddled/hide, but I do NOT like being humped if you are a stranger and not a close friend.
-  You can interact with me, I don't bite. If you want to chat, please whisper. I'm usually offtab.
+  You can interact with me, I don't bite. If you want to chat, **please whisper. I'm usually offtab.**
   
 • I'm an autistic awkward person, I usually don't start the conversation.
 
 • __I'am extremely uncomfy with sex jokes directly to me!__ (Ex: I'm gonna fuck you.) But I'm fine with sex jokes that isn't directed to me ^_^!!
   I just have a trauma from it so srry :P
 
-• I don't want to join your parties unless you are a known friend. So don't send me your invites to an "fpe party" or "murder drones party", I want none of that.
+• **I don't want to join your parties** unless you are a known friend. **So don't send me your invites** to an "fpe party" or "murder drones party", I want none of that.
 
 • Taken by a man who loves me and I love him too!! Yippee Yippee!! ^_^
 
 • I am 18 years old, so my topics with minors are limited and I will block you if you don't respect my boundaries ^_^
+   > Do NOT discuss any nsfw topics with me, even if its a joke **if you are a minor.**
+
+[Updated in: 11/23/2025] (If over a month, its outdated.)
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-  **`You can find me in :`**
+  **`You can find me in :`** *(Order: often to rare)*
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
@@ -60,6 +63,10 @@
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
+• Bad Things [ROBLOX] (Current!!)
+
+• Searching For A World That Doesn't Exist (Current!!)
+
 • Alien Stage (Current!!)
 
 • Forsaken (Current!!)
@@ -93,6 +100,8 @@
 • Omori
 
 • Left 4 dead 2
+
+• Dandy's World
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
