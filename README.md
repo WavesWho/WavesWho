@@ -67,7 +67,7 @@
 
 • Bad Things [ROBLOX] (Current!!)
 
-• ||The Freak Circus (Current!!)||
+• The Freak Circus (Current!!)
 
 • Searching For A World That Doesn't Exist (Current!!)
 
