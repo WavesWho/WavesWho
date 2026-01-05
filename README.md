@@ -23,7 +23,7 @@
 • I am 18 years old, so my topics with minors are limited and I will block you if you don't respect my boundaries ^_^
    > Do NOT discuss any nsfw topics with me, even if its a joke **if you are a minor.**
 
-[Updated in: 11/23/2025] (If over a month, its outdated.)
+[Updated in: 1/5/2026] (If over a month, its outdated.)
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
@@ -69,13 +69,15 @@
 
 • Alien Stage (Current!!)
 
-• Forsaken (Current!!)
+• DVN/ Dummies Vs Noobs (Current!!)
 
 • Project Moon (Current!!)
 
 • Die of Death (Current!!)
 
 • Class of 09
+
+• Forsaken
 
 • Studio investigrave (Deadplate,Elevator Hitch,Eloquent Countenance,Etc.)
 
