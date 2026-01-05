@@ -53,9 +53,11 @@
      
 • Basic DNI criteria (Racism,Homophibia,Incest,Zoophila,etc.)
 
-• TCOAAL cosplayers <-- HUGE DNI
+• TCOAAL fandom <-- HUGE DNI
 
-• Mimukauwa Nice Try supporters (Ew, child diddlers go away)
+• Lolicons/Shotacons
+
+• Yansim(Yandere Simulator) fandom
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
@@ -64,6 +66,8 @@
 ━━━━━━━━༻❁༺━━━━━━━━
 
 • Bad Things [ROBLOX] (Current!!)
+
+• ||The Freak Circus (Current!!)||
 
 • Searching For A World That Doesn't Exist (Current!!)
 
