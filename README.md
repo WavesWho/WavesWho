@@ -135,5 +135,6 @@ https://waveswho.atabook.org/
 ━━━━━━━━༻❁༺━━━━━━━━
 
 
-   ![image](https://github.com/user-attachments/assets/baecdf88-35a5-41e4-8e0d-988c37b47a81)
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/7f858e18-343d-4ef6-8cea-f8c8b7d836b7" />
+
 
