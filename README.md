@@ -145,6 +145,6 @@ https://waveswho.atabook.org/
 ━━━━━━━━༻❁༺━━━━━━━━
 
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/7f858e18-343d-4ef6-8cea-f8c8b7d836b7" />
+<div class="tenor-gif-embed" data-postid="27603341" data-share-method="host" data-aspect-ratio="0.928125" data-width="100%"><a href="https://tenor.com/view/decaying-winter-yosef-dance-gif-27603341">Decaying Winter Yosef GIF</a>from <a href="https://tenor.com/search/decaying+winter-gifs">Decaying Winter GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 
