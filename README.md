@@ -145,6 +145,7 @@ https://waveswho.atabook.org/
 ━━━━━━━━༻❁༺━━━━━━━━
 
 
-<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/4qW3BbQAwZsrnu8a3ZRdyT?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<img width="594" height="640" alt="tenor" src="https://github.com/user-attachments/assets/9a4f602a-4161-496b-ba70-0ce5ef96e91d" />
+I love him sm
 
 
