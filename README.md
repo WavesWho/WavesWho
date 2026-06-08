@@ -4,9 +4,9 @@
 
  ━━━━━━━━༻❁༺━━━━━━━━
 
-• Name : Waves / Arithia
+• Name : Waves / ECHO
 
-• Pronouns : Any, [Commonly : She/her]
+• Pronouns : Any, [Commonly : He/Him]
 
 • I don't mind being cuddled/hide, but I do NOT like being humped if you are a stranger and not a close friend.
   You can interact with me, I don't bite. If you want to chat, **please whisper. I'm usually offtab.**
@@ -18,12 +18,16 @@
 
 • **I don't want to join your parties** unless you are a known friend. **So don't send me your invites** to an "fpe party" or "murder drones party", I want none of that.
 
-• Taken by a man who loves me and I love him too!! Yippee Yippee!! ^_^
+• I'm not taken but I am not interested in relationships.
 
-• I am 18 years old, so my topics with minors are limited and I will block you if you don't respect my boundaries ^_^
+• I am 19 years old, so my topics with minors are limited and I will block you if you don't respect my boundaries ^_^
    > Do NOT discuss any nsfw topics with me, even if its a joke **if you are a minor.**
 
-[Updated in: 1/5/2026] (If over a month, its outdated.)
+• **I Yumeship Yosef and I am a non-sharing yumeshipper!!**
+
+• I am free to block anyone who makes me uncomfortable.
+
+[Updated in: 8/6/2026] (If over a month, its outdated.)
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
@@ -59,17 +63,23 @@
 
 • Yansim(Yandere Simulator) fandom
 
+• Pressure(Roblox) supporters
+
 ━━━━━━━━༻❁༺━━━━━━━━
 
   **`Interests :`**
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-• Bad Things [ROBLOX] (Current!!)
+• Decaying Winter (CURRENT AND LOVED)
 
-• The Freak Circus (Current!!)
+• Blocktales (Current!!)
 
-• Searching For A World That Doesn't Exist (Current!!)
+• Notoriety (Current!!)
+
+• Left 4 dead 2 (Current!!)
+
+• Witch Hat Atelier (Current!!)
 
 • Alien Stage (Current!!)
 
@@ -77,7 +87,11 @@
 
 • Project Moon (Current!!)
 
-• Die of Death (Current!!)
+• Bad Things [ROBLOX] 
+
+• Searching For A World That Doesn't Exist 
+
+• Die of Death 
 
 • Class of 09
 
@@ -103,11 +117,7 @@
 
 • Regretevator
 
-• Pressure
-
 • Omori
-
-• Left 4 dead 2
 
 • Dandy's World
 
@@ -128,7 +138,7 @@
 
 ━━━━━━━━༻❁༺━━━━━━━━
 
-https://waveswho.straw.page/
+https://wavesecho.straw.page/
 
 https://waveswho.atabook.org/
 
